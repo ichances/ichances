@@ -1,4 +1,4 @@
-##### <p align="center">![](https://komarev.com/ghpvc/?username=trappped&color=F96386&label=　⠀⠀⠀𖥔⠀⠀⠀　)</p>
-##### <p align="center">![](https://file.garden/Z6h2bh-K9iNK3QVg/hudjidajsaad)</p>
+##### <p align="center">![](https://komarev.com/ghpvc/?username=trappped&color=62C2E8&label=　⠀⠀⠀𖥔⠀⠀⠀　)</p>
+##### <p align="center">![](https://media.discordapp.net/attachments/1174359818836910140/1488517482133323888/image.png?ex=69cd116f&is=69cbbfef&hm=419221ef22c62f9ff5cc017c0e6129049ba493b1803433170f5b04dd1bf1ae5a&=&format=webp&quality=lossless&width=341&height=239)</p>
 ##### <p align="center">[rentry](https://rentry.co/thangyu)⠀⠀&⠀⠀[atabook](https://infected.atabook.org/)</p>
 ##### <p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=6f71be&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&redirect=true)</p>
